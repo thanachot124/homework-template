@@ -1,5 +1,5 @@
 # Homework 1
 
-Student ID : 
+Student ID : 6130300271 
 
-Student Name:
+Student Name:thanachot polbumrung นายธนโชติ พลบำรุง
